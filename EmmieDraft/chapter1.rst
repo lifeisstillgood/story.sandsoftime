@@ -1,0 +1,3 @@
+I woke up with a deep chill of excitement run through my spine it was my 11th birthday and it had been 4 years since my dad left but today was about me and I am not going to let anything or anyone stop that. By the way I am Emilia but everyone calls me Emmie and I am going to be 11 so since you are going to read this book I may as well introduce you to my family I have no siblings and I have a mum because my father went missing when I was 8 but I also have a best friend called Izzy we have been best friend scince preschool 
+
+as usual, it is another day and just because it is my birthday doesn't mean I can skip school but believe me if i could I would so I stretch out my arm struggling to keep my eyes open and i turn off the dreaded sound of my alarm clock 
